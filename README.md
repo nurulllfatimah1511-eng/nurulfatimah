@@ -1,2 +1,0 @@
-# nurulfatimah
-literasidigital-ai
